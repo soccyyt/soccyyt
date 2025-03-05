@@ -1,2 +1,1 @@
-Zordmine is the ign. 
-don't dox me lmao
+i be on str8 bs
